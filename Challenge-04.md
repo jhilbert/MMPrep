@@ -12,3 +12,5 @@ Final Challenge
 ===============
 Bask in the glory of completing your prep work and get ready for an awesome 8
 week adventure!
+
+READY!!!
